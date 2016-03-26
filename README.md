@@ -1,2 +1,2 @@
 # yanghuichu.github.io
-这是个人
+Σ( ° △ °|||)︴ 
